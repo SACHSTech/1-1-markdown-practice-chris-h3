@@ -35,7 +35,7 @@ As hip hop gained traction, artists began recording tracks commercially.
 
 ## 4. The Golden Age of Hip Hop (Late 1980s–Mid 1990s)  
 
-Notorious B.I.G. (image link: https://i.imgur.com/aICxYyc.jpg)
+![Notorious B.I.G.](https://i.imgur.com/aICxYyc.jpg)
 
 The Golden Age is often described as the most creative and influential period of hip hop.  
 This era emphasized lyrical complexity, innovation in production, and a broad diversity of styles.  
