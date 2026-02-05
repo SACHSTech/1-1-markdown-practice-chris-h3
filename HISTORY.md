@@ -26,7 +26,7 @@ This extended drum section became the foundation for MCs to hype up the crowd.
 
 ## 3. The Old School Era (Early 1980s)  
 
-Run DMC (image link: https://i.imgur.com/e80w9gc.jpg)
+![Run DMC](https://i.imgur.com/e80w9gc.jpg)
 
 As hip hop gained traction, artists began recording tracks commercially.  
 - Rapper’s Delight by the Sugarhill Gang (1979) is widely recognized as the first recorded rap single to reach mainstream audiences. (video link: https://youtu.be/mcCK99wHrk0)  
