@@ -17,12 +17,12 @@ Hip hop’s roots can be traced back to block parties in the Bronx. DJs such as 
 
 This extended drum section became the foundation for MCs to hype up the crowd.  
 
-“Hip hop didn’t invent anything. Hip hop reinvented everything.” – Chuck D 
+> “Hip hop didn’t invent anything. Hip hop reinvented everything.” – Chuck D 
 
-Key Figures of the 1970s:  
-1. Kool Herc – credited with extending the break. (video link: https://youtu.be/10C-Q3NIlzU)  
-2. Afrika Bambaataa – spread hip hop culture through the Universal Zulu Nation. (video link: https://youtu.be/9J3lwZjHenA)  
-3. Grandmaster Flash – innovated DJ techniques like scratching and cutting. (video link: https://youtu.be/PobrSpMwKk4)  
+**Key Figures of the 1970s:**  
+1. [Kool Herc](https://youtu.be/10C-Q3NIlzU) – credited with extending the break. 
+2. [Afrika Bambaataa](https://youtu.be/9J3lwZjHenA) – spread hip hop culture through the Universal Zulu Nation. 
+3. [Grandmaster Flash](https://youtu.be/PobrSpMwKk4) – innovated DJ techniques like scratching and cutting.   
 
 ## 3. The Old School Era (Early 1980s)  
 
