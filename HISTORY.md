@@ -11,7 +11,7 @@ Together, these four pillars shaped a global cultural force. Today, hip hop is o
 
 ## 2. The Birth of Hip Hop (1970s)  
 
-DJ Kool Herc (image link: https://i.imgur.com/weXCosl.jpg)
+![DJ Kool Herc](https://i.imgur.com/weXCosl.jpg)
 
 Hip hop’s roots can be traced back to block parties in the Bronx. DJs such as Kool Herc pioneered the technique of isolating and looping the breakbeat from funk and soul records.  
 
